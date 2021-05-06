@@ -1,0 +1,5 @@
+- 👋 Hi, I’m 41M0R4V1D.
+- 👀 I’m interested in coding if not cyber security.
+- 🌱 I’m currently learning Human Behavior 🤭
+- 💞️ I’m looking to collaborate on Cryptos, mostly.
+- 📫 How to reach me, aerotaracha@gmail.com
